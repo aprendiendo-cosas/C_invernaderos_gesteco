@@ -38,3 +38,21 @@ Se refiere a los conceptos de la ecología que abordamos en esta parada:
 
 
 
++ #invernaderos El olvido y la importancia que se tiene sobre el conocimiento empírico que muchas veces es mas valioso porque al poner en practica (ensayo y error) podemos acercanos a lo que no puede “funcionar” según un contexto/ecosistema que varía y no es “fijo”
++ #invernaderos Amo a Jesus #JesusPresidente🧡
+
+
+
+## Algunas fotos
+
+![1](https://github.com/aprendiendo-cosas/C_invernaderos_gesteco/blob/main/images/1.JPG?raw=true) 
+
+![2](https://github.com/aprendiendo-cosas/C_invernaderos_gesteco/blob/main/images/2.JPG?raw=true) 
+
+![3](https://github.com/aprendiendo-cosas/C_invernaderos_gesteco/blob/main/images/3.JPG?raw=true) 
+
+![4](https://github.com/aprendiendo-cosas/C_invernaderos_gesteco/blob/main/images/4.JPG?raw=true) 
+
+![5](https://github.com/aprendiendo-cosas/C_invernaderos_gesteco/blob/main/images/5.JPG?raw=true) 
+
+![6](https://github.com/aprendiendo-cosas/C_invernaderos_gesteco/blob/main/images/6.JPG?raw=true) 
